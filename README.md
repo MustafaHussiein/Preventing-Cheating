@@ -14,3 +14,11 @@ Excited to share a project where I built a secure Electron-based desktop app to 
 🔍 Looking forward to exploring more security-driven applications in tech! 🚀
 
 #ElectronNet #DotNet #CyberSecurity #EdTech #CrossPlatform #WebApp #DesktopDevelopment #SoftwareEngineering #AntiCheat
+
+
+https://github.com/user-attachments/assets/71a21da9-60f1-49c1-9633-359a3d93af1e
+
+
+
+https://github.com/user-attachments/assets/c59eaf35-c10e-4520-9d50-1b553627bca2
+
